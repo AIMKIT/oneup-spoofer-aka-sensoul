@@ -14,3 +14,7 @@ do not even buy this would not work for BE/EAC Does not even clear traces when d
 
 
 ![Test Image 1](unknown.png)
+
+
+The meme is him: Scamming cunt! We Will decompile everything you own! MR.Space Raider
+![Test Image 1](101818565_10217260800374381_8172358685863968768_o.jpg)
